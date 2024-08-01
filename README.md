@@ -1,0 +1,1 @@
+# is-richard-cool
